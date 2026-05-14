@@ -1,1 +1,1 @@
-# widjino_compani
+# widjino_company
